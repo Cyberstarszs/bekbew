@@ -1,1 +1,1 @@
-#semoga sukses selalu
+#akau sudh bisa
